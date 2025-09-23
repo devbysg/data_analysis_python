@@ -88,6 +88,7 @@ Explore the live dashboard here:
 ## 📬 Contact  
 👤 **Soumya Gangopadhyay**  
 - 📧 [Email](mailto:gongo.sg5@gmail.com)  
-- 🔗 [LinkedIn](www.linkedin.com/in/soumya-gangopadhyay-50b30218b)  
+- 🔗 [LinkedIn](https://www.linkedin.com/in/soumya-gangopadhyay-50b30218b)  
 
 ---
+
